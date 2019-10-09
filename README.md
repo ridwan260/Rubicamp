@@ -1,0 +1,2 @@
+# harussemangat
+Belajar terus
