@@ -1,2 +1,2 @@
 # harussemangat
-Belajar terus
+say bissmilah
