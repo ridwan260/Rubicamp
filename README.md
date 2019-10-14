@@ -1,2 +1,0 @@
-# harussemangat
-say bissmilah
